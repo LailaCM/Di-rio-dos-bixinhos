@@ -1,1 +1,1 @@
-# Di-ario-dos-bixinhos
+# Diario-dos-bixinhos
